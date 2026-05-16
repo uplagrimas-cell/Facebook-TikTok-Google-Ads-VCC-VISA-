@@ -74,3 +74,5 @@
 合理使用虚拟卡，正在成为越来越多跨境电商卖家的标配策略。
 
 虚拟信用卡 | 跨境电商 | 广告投放 | VCC | CoreGold | 支付风控
+<img width="1360" height="768" alt="eGlGM" src="https://github.com/user-attachments/assets/8a9061ec-1d57-4342-903b-1eba24067612" />
+
